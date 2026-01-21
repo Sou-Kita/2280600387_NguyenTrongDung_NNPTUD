@@ -1,1 +1,2 @@
-# 2280600387_NguyenTrongDung_NNPTUD
+Họ và tên: Nguyễn Trọng Dũng
+Mssv: 2280600387
